@@ -1,2 +1,16 @@
-# turma1Aalura-
+# turma1Aalura-!
+
+
+
 Projeto  Alura 
+
+
+
+
+
+
+
+
+
+
+
